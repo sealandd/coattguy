@@ -9,4 +9,4 @@
 
   ᴵᵗ ˢᵉᵉᵐˢ ⁿᵉⁱᵗʰᵉʳ ˢ⁻ˢᵖᵃᶜᵉ ⁿᵒʳ ˢᵒᶜⁱᵉᵗʸ ⁿᵉᵉᵈ ᵐᵉ."
 
-![](https://files.catbox.moe/l3o9oq.png)
+![](https://files.catbox.moe/bit4ec.png)

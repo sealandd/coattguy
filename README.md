@@ -1,11 +1,9 @@
  ![](https://files.catbox.moe/lokpfj.png)
- "ᴾⁱᶜᵗᵘʳᵉ ᵈᵉᵉᵖ ˢᵖᵃᶜᵉ. ⱽᵃˢᵗ ᵃⁿᵈ ᶠʳ⁻ᶠʳᵒᶻᵉⁿ. ᴳᵃˡᵃˣⁱᵉˢ ᵃʳᵉ ᵇᵒʳⁿ. ˢᵗᵃʳˢ ᶜ⁻ᶜᵒˡˡᵃᵖˢᵉ.
-
-   ...ᴬⁿᵈ ᴵ ʲᵘˢᵗ ᵒᵇˢᵉʳᵛᵉ."
+Hallo!
 
 ![](https://files.catbox.moe/gx4ww8.png)
-   "ᴵ'ˡˡ ⁿᵉᵛᵉʳ ᶠᵉᵉˡ ᵗʰᵉ ʰᵉᵃᵗ ᵒᶠ ᵗʰᵉ ˢ⁻ˢ⁻ˢᵘⁿ. ᴼʳ ᵗʰᵉ ʷ⁻ʷᵃʳᵐᵗʰ ᵒᶠ ᵃⁿ ᵉᵐᵇʳᵃᶜᵉ.
+  My name is kita or late.. or u can call me coat guy
 
-  ᴵᵗ ˢᵉᵉᵐˢ ⁿᵉⁱᵗʰᵉʳ ˢ⁻ˢᵖᵃᶜᵉ ⁿᵒʳ ˢᵒᶜⁱᵉᵗʸ ⁿᵉᵉᵈ ᵐᵉ."
+Check out my straw page, atabook and rentry for more info!
 
 ![](https://files.catbox.moe/6jr3ai.png)

@@ -7,4 +7,5 @@ Check out my straw page for more info!
 
 
 We (YES WE) ALL LOVE MOLOSSIA!!!!
-![](https://files.catbox.moe/smykwa.gif)
+
+![](https://files.catbox.moe/wr2u7b.png)

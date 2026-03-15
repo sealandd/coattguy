@@ -1,3 +1,5 @@
+NOTICE ; I apologize if the rentry is not working for some, i unfortunately cannot fix it, the rentry is not an important detail! It is just my pronouns and name!
+  
   Hello! u can call me coat guy...or sealand
   
 ![](https://files.catbox.moe/gx4ww8.png)

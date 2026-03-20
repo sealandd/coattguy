@@ -1,4 +1,4 @@
-NOTICE ; I apologize if the rentry is not working for some, i unfortunately cannot fix it, the rentry is not an important detail! It is just my pronouns and name which is just sealand and They/he! Update; I've made a new page for those who want to draw on my strawpage, i've been told its very laggy, i am so very sorry.
+NOTICE ; I have taken down my rentry, i apologize if the rentry was not working for some, i unfortunately cannot fix it, the rentry is not an important detail! It is just my pronouns and name which is just sealand and They/he! Update; I've made a new page for those who want to draw on my strawpage, i've been told its very laggy, i am so very sorry.
   
   Hello! u can call me coat guy...or sealand
   

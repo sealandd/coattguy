@@ -15,6 +15,8 @@
 
   ![](https://files.catbox.moe/wwoavr.jpg)
 
+ ![](https://files.catbox.moe/ealnok.gif)
+
 
 
 //𝘞𝘦 (𝘠𝘌𝘚 𝘞𝘌) 𝘈𝘓𝘓 𝘓𝘖𝘝𝘌 𝘔𝘖𝘓𝘖𝘚𝘚𝘐𝘈!!!!

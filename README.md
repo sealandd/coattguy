@@ -1,6 +1,6 @@
 NOTICE ; I have taken down my rentry, i apologize if the rentry was not working for some, i unfortunately cannot fix it, the rentry is not an important detail! It is just my pronouns and name which is just sealand and They/he! Update; I've made a new page for those who want to draw on my strawpage, i've been told its very laggy, i am so very sorry.
   
-  Hello! u can call me kita or sealand
+  Hello! u can call me kita or sealand. I am quite awkward and shy when talking to people so please keep this in mind when speaking to me! But i enjoy making new friends so you are allowed to interact with me unless my name says "afk" Or you saw me say i was going afk!
   
 ![](https://files.catbox.moe/n4rtos.jpg)
 (This is not my art!! Art credits go to Honoka on Deviantart)

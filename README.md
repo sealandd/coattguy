@@ -6,12 +6,13 @@
    !!!!!!𝙒𝙝𝙚𝙣 𝙞 𝙟𝙤𝙠𝙚 𝙖𝙗𝙤𝙪𝙩 𝙩𝙝𝙞𝙣𝙜𝙨 𝙥𝙡𝙚𝙖𝙨𝙚 𝙠𝙣𝙤𝙬 𝙩𝙝𝙚𝙮 𝙖𝙧𝙚 𝙘𝙤𝙢𝙥𝙡𝙚𝙩𝙚𝙡𝙮 𝙤𝙪𝙩 𝙤𝙛 𝙎𝙚𝙖𝙡𝙖𝙣𝙙𝙨 𝙘𝙝𝙖𝙧𝙖𝙘𝙩𝙚𝙧 𝙖𝙣𝙙 𝙖𝙡𝙨𝙤 𝙙𝙤𝙣𝙩 𝙢𝙖𝙠𝙚 𝙍𝙀𝘼𝙇 𝙞𝙣𝙖𝙥𝙥𝙧𝙤𝙥𝙧𝙞𝙖𝙩𝙚 𝙘𝙤𝙢𝙢𝙚𝙣𝙩𝙨 𝙖𝙨 𝙞 𝙝𝙖𝙫𝙚 𝙨𝙩𝙖𝙩𝙚𝙙 𝙞 𝙖𝙢 14 𝙖𝙣𝙙 𝙞 𝙝𝙖𝙫𝙚 𝙖 𝙜𝙞𝙧𝙡𝙛𝙧𝙞𝙚𝙣𝙙!!!!!!!
   
 ![](https://files.catbox.moe/n4rtos.jpg)
-(This is not my art!! Art credits go to Honoka on Deviantart)
+ (This is not my art!! Art credits go to Honoka on Deviantart)
+ 
 Check out my straw page for more info!
 
 
 
 //We (YES WE) ALL LOVE MOLOSSIA!!!!
-(none of my photos for him are working and its making me upset so i am NOT putting one up)
+(none of my photos for him are working and its making me upset so i am NOT putting one up) 
 
 
